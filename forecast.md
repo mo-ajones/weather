@@ -2,8 +2,8 @@
 
 ## Today 
 
-Bright and shiny
+Bright and less shiny
 
 ## Tomorrow
 
-Same again AFAICS
+Heaving it down!
